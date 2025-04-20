@@ -1,5 +1,6 @@
 # CONECTATEPLAY
-Conectate TV
+Conectate Play
+CONECTATE PLAY
 conectateplay
 
 DESCARGAS PARA TV
